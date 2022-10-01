@@ -1,2 +1,2 @@
-# Jack1Almighty.github.io
+# Тризна Ярослав
 The first website
